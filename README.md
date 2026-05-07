@@ -1,4 +1,6 @@
-## Hi there 👋
+
+![](https://files.catbox.moe/b5bcy0.png)
+
 
 <!--
 **slvgz/slvgz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
