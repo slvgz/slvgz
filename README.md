@@ -1,5 +1,5 @@
 
-WIP
+WIP (ALL ART CREDITS TO ME!!!!! I take so long to draw plz help.)
 
 ![](https://files.catbox.moe/rkljbm.png)
 
