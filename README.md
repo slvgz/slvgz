@@ -1,7 +1,7 @@
 
 WIP
 
-![](https://files.catbox.moe/ni86q1.png)
+![](https://files.catbox.moe/rkljbm.png)
 
 
 <!--
