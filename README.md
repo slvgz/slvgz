@@ -1,13 +1,13 @@
 
 WIP (ALL ART CREDITS TO ME!!!!! I take so long to draw plz help.)
 
-“i have no face, i must lulz.” — aubree or somthin
+“your boos mean nothing, i’ve seen what you people cheer for.” — rick sanchez
 
 feel free to int ! I’m finally coming out my shell after months of inactiveness !!
 
 c+h freely unless i say so !
 
-![](https://files.catbox.moe/rkljbm.png)
+![](https://files.catbox.moe/lxhh2s.png)
 
 
 <!--
