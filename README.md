@@ -1,5 +1,5 @@
 
-WIP (ALL ART CREDITS TO ME!!!!! I take so long to draw plz help.)
+WIP (ALL ART CREDITS TO ME (and sum to my friends) !!!!! I take so long to draw plz help.)
 
 “your boos mean nothing, i’ve seen what you people cheer for.” — rick sanchez
 
