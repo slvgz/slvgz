@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/31d357ae16682391138d7de6ba8cf55a/ada88593c812ef48-c0/s1280x1920/8a742b577570194d90e50253847a32ddd2b527fd.pnj)
 
-WIP (ALL ART CREDITS TO ME (and sum to my friends) !!!!! I take so long to draw plz help.)
+(readme art is by from my awesome primecito lou !)
 
 “your boos mean nothing, i’ve seen what you people cheer for.” — rick sanchez
 
