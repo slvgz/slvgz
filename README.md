@@ -12,6 +12,8 @@ c+h freely unless i say so !
 
 ![](https://files.catbox.moe/qmngwy.png)
 
+<p align="center"> Soy ★ Soren
+<p align="center"> he / they
 <p align="center"> RICKORTY HEAVILY DNI / BLOCKED
 
   ![](https://64.media.tumblr.com/888ff3aae80797f2a413117470d4bcf6/24860b94413c8d4e-c7/s1280x1920/c4f8a243030f8dce94b0a3e61322f01c733a64e0.pnj)
