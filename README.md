@@ -10,7 +10,7 @@ c+h freely unless i say so !
 
 ![](https://files.catbox.moe/qmngwy.png)
 
-![](https://64.media.tumblr.com/fac4a99bad0de58ec15ae0892958bff7/7384512d5661f69b-ba/s400x600/ed581c1c479a644b62d913727b76d6fbd8ad5fa7.pnj#100x100) RICKORTY HEAVILY DNI / BLOCKED
+![](https://64.media.tumblr.com/fac4a99bad0de58ec15ae0892958bff7/7384512d5661f69b-ba/s400x600/ed581c1c479a644b62d913727b76d6fbd8ad5fa7.pnj#250x250) RICKORTY HEAVILY DNI / BLOCKED
 ![](https://64.media.tumblr.com/888ff3aae80797f2a413117470d4bcf6/24860b94413c8d4e-c7/s1280x1920/c4f8a243030f8dce94b0a3e61322f01c733a64e0.pnj)
 <!--
 **slvgz/slvgz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
