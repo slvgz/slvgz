@@ -10,8 +10,7 @@ feel free to int ! I’m finally coming out my shell after months of inactivenes
 
 c+h freely unless i say so !
 
-<p align="center">
-  <img src=(https://64.media.tumblr.com/c8215ecb96efcfbe2a0476143745c583/b18aff3ce9323114-33/s250x400/e7ff04c259a04e32c4a92aeca9f9b60ff5d20819.gifv)
+  ![](https://64.media.tumblr.com/a56ff982a3ed4f6145b8f6101fe11978/f5d8445b7c4ad80f-f0/s1280x1920/0863681d4a6e5f386820d28377ed863ccda3dea5.pnj)
 
 ![](https://files.catbox.moe/qmngwy.png)
 
