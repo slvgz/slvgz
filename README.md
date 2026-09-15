@@ -1,6 +1,8 @@
 ![](https://64.media.tumblr.com/31d357ae16682391138d7de6ba8cf55a/ada88593c812ef48-c0/s1280x1920/8a742b577570194d90e50253847a32ddd2b527fd.pnj)
 
-(readme art is by from my awesome primecito lou !)
+![](https://64.media.tumblr.com/c8215ecb96efcfbe2a0476143745c583/b18aff3ce9323114-33/s250x400/e7ff04c259a04e32c4a92aeca9f9b60ff5d20819.gifv)
+
+(readme art is by from my awesome primecito @elcafeina !)
 
 “your boos mean nothing, i’ve seen what you people cheer for.” — rick sanchez
 
